@@ -1,0 +1,1 @@
+# barbeador-S101-Xiaomi-MiBrasil
