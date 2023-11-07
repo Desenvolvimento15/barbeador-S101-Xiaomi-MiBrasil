@@ -1,1 +1,1 @@
-# barbeador-S101-Xiaomi-MiBrasil
+# barbeador-s101-xiaomi-mibrasil
